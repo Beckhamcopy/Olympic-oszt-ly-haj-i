@@ -1,1 +1,1 @@
-# Olympic-oszt-ly-haj-i
+# Olympic-osztaly-hajoi
